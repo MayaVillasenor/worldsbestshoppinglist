@@ -13,6 +13,7 @@ Sam's list:
 - Comfy Slippers
 - Pete Davidson's Haircut
 
+Jacob's list
 We gotta get:
 - Water bottles
 - Oranges
@@ -21,3 +22,13 @@ We gotta get:
 - Cheesecake
 - Cereal (ideally raisin bran)
 - Some nice refreshing Diet Pepsi®
+
+MC's list
+gruyere 
+baguette
+chocolate 
+water melon
+cool-ness
+a job
+happiness
+okay im done
