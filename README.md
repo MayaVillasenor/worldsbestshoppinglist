@@ -23,12 +23,13 @@ We gotta get:
 - Cereal (ideally raisin bran)
 - Some nice refreshing Diet Pepsi®
 
-MC's list
-gruyere 
-baguette
-chocolate 
-water melon
-cool-ness
-a job
-happiness
+the god's list
+-gruyere 
+-baguette
+-chocolate 
+-water melon
+-cool-ness
+-a job
+-happiness
+-
 okay im done
